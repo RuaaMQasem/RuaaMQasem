@@ -1,6 +1,6 @@
 <h1 align="center">Hi 👋, I'm Ruaa Qasem</h1>
 
-- I’m looking to collaborate on an innovative projects to apply and enhance my practical experience.
+- I’m looking to collaborate on innovative projects to apply and enhance my practical experience.
 
 - Know about my experiences [https://drive.google.com/drive/folders/1bg6SynKIgtkeGtN_TZJDjQcw9PyKG2QV?usp=drive_link]
 
